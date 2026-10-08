@@ -1,0 +1,2 @@
+# premium-heliochrono-001-heliochronometer-precision-dia
+Tired of planners that ignore the natural rhythm of your day? The Heliochronometer Precision Dial Planner syncs your tasks with the sun's arc, turning chaotic to-do lists into a fluid, time-optimized flow.  This Notion template reimagines daily planning as a dial—just like a heliochronometer—so you visually align your energy peaks with your most im
